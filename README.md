@@ -1,2 +1,2 @@
-# Pre-os-dos-Cortes
+# Preços-dos-Cortes
 Beneficios da Barbearia
